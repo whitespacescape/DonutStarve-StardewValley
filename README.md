@@ -4,7 +4,7 @@ a remake combined version between Don't Starve(Keil)and Stardew Valley(Concerned
 
 this game will keep open and free on 
    
-    https://itch.io/AllDonutSSS
+    https://itch.io/AllDonutarSS
     
 Imaging living a world where Death defines Advanture 
 
