@@ -1,6 +1,7 @@
 # DonutStarve-StardewValley
 a remake combined version between Don't Starve(Keil)and Stardew Valley(ConcernedApe) 
 (both are my favorite game)
+# Especially, U can Switch to infinite Respawn,If U are a newbie
 
 this game will keep open and free on 
    
